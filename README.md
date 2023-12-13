@@ -1,1 +1,1 @@
-# Education-responsive-website-templates-
+# -responsive-website-templates-
